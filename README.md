@@ -1,1 +1,1 @@
-# Pagina-Entrada Cualquiera pode mejorar la Entrada 
+# Pagina-Entrada Cualquiera puede mejorar la Entrada 
